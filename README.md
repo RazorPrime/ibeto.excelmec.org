@@ -1,1 +1,1 @@
-# impulsivereckless.com
+# zzak.io
